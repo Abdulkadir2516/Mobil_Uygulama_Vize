@@ -1,1 +1,0 @@
-# Mobil_Uygulama_Vize
